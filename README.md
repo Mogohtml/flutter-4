@@ -3,12 +3,6 @@
 ## Online shop LADA
 
 
-
-
 ![Uploading Снимок экрана 2024-03-21 в 15.58.39.png…]()
-
-
-
-
 
 
